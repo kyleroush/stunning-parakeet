@@ -1,1 +1,2 @@
-# stunning-parakeet
+# Blog Ideas
+
